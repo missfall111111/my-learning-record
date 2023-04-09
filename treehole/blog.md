@@ -24,3 +24,24 @@ I wish me could really lead a wonderful,happy life with my family.That
 is remote.And I wish everyone in the world happy too,just this.
 What does tomorrrow look like? I don't konw ,I hope I can get lots of
 true things ,instead of virtual information.
+# a perfect shabi in my dorimitory Don't konw what day!
+After I really acquainted him,through about half a year's living,
+I gradually realized that he has always been a big "傻逼" in chinese!
+Quite annoying he has been ,and what I can do is nothing.
+Anyway,I believe all human own the same feeling of some behavior,
+there will somone punish him someday,I believe.
+What else,he let me get to know why we invent "下头男",the word. No
+word could better be used to describe him ,hahaha.
+If you are a regular person ,I bet you would like to kill this "傻逼""下头男”。
+Especially  whenever you have a rest,the "傻逼"would come to disturb you .
+Nothing could worsen than this,really I have the idea to kill him!
+Go die "傻逼"！
+# 2023.4.9
+在有生的瞬間能遇到你，竟花光所有運氣。到這日才發覺，曾呼吸過空氣。
+The song is really nice. I like it .And this
+海鳥和魚相愛，只是一場意外。is also nice.
+So what I want to say is that you must improve myself and stop fantasy.
+Imagination is always virtual,confront the truth !Do exercise and sing ,
+go with you heart. I hope you finally would find someone .
+
+
