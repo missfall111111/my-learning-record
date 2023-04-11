@@ -12,7 +12,9 @@ int main()
     vector<int>::iterator p=step.begin();
     while(cin>>score)
     {
-       ( *(p+score/10))++;
+      //  *(p+score/10)++; this is wrong!
+    //  (*(p+score/10))++; this is right!
+    ++*(p+score/10); // this is right !
     }
 
     for(int a:step)
