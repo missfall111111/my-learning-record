@@ -63,4 +63,15 @@ be the most important period in your life .——“昂贵是这刻，我觉悟�
 ，看破一生渺渺”.
 5. be bold and condfident ,especially when meet girls. Somewhat,I feel I
 may need a girl to accompany me. Hope it wonderful.
-
+# 2023.4.11 afternoon
+Don't judge a book by its appearance .So as a person,a girl.Don't be absentminded
+on the first sight.You konw ,maybe she is not a perfect beauty ,just look
+quite nice on your special angle .Be calm please.
+Make things contrect ,insteaf of abstract .Abstract may makes you unhappy,
+and with a series of contrect things,the sense of goal would strength much
+a lot.
+So what did I do today ? I've look much physics ,but it seems useless. And
+I finshded the test of sitation and police on MOOK ,I was painful doing that.
+35 problems in 15 minutes ,do you want my life?
+Actually I've thought mang meaningful things today ,but unfortunately,I forget
+them when I am typing on my computer . 烦死了！
