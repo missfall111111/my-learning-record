@@ -75,8 +75,9 @@ I finshded the test of sitation and police on MOOK ,I was painful doing that.
 35 problems in 15 minutes ,do you want my life?
 Actually I've thought mang meaningful things today ,but unfortunately,I forget
 them when I am typing on my computer . 烦死了！
+# 2023.4.11 eve
 I get one! It is be yourself ,and ignore the person you don't care at all,
-you just need to pay attention to the one you cares. Be yourself ,if you are
+iyou just need to pay attention to the one you cares. Be yourself ,if you are
 not embarrassed, then it is others to be embarrassed.Dive into your world,
 inspect your ideas,ignore the comment from outside.
 
