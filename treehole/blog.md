@@ -80,4 +80,13 @@ I get one! It is be yourself ,and ignore the person you don't care at all,
 iyou just need to pay attention to the one you cares. Be yourself ,if you are
 not embarrassed, then it is others to be embarrassed.Dive into your world,
 inspect your ideas,ignore the comment from outside.
-
+# 2023.4.14
+One problems is that I don't kown how to schedule my time ,I would waste my
+time viewing the phone ,watching videos,etc. As a result ,I am so anxious 
+now.
+Another proble is that I seem to like a girl in the shcool,and I bonus myself
+a lot . What I look improtantly may just her beauty, and I don't acquainted
+her at all.
+What should I do ? God ?
+I don't like this situation?
+Wish everyone happy everyday.Hope so!
