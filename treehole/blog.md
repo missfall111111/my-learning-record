@@ -90,3 +90,31 @@ her at all.
 What should I do ? God ?
 I don't like this situation?
 Wish everyone happy everyday.Hope so!
+# 2023.4.15 eve
+Strangely,I would miss my junior life When my chinese teacher Li always
+commond us to have a talk with him in his office. In the memory,I've hated
+that a lot . Suddenly ,I think of it a lot today. Pity may become more and 
+more in the future as we get older and older.
+And what did I do today? I finish my situation and police homework and finshi
+the exam of country prosperity,what I dissatisfied with is I spent a whole day
+including morning and afternoon doing these, I want to stress that my efficient
+is too low and I can't accept it. 
+What is really meaningful thing? Where is such a meaning exist? Where? 
+The high math ,the physics ? or the distrect math? And how? How I do it?
+My method theroy is confused! I really don't kown what I should do ? Or should
+I fall in love with a unfamiliar girl? What should I do ? Who know? I don't konw?
+Or how I can stop to think that ? Is that guilty? I can't stop!
+Too many things , too many people, too many imagination, too many fellings,
+too many mistakes, too many relationship(but I don't think so,I want to acquaint more person),
+too many anxieties, and I'm involved ,who am I ? What I love ? What I am eager?
+Someone would know I've lost intretst in the supermarket which was once the 
+heaven of a child ! I am painful !And who can understand it? What I can do
+is just write here! I even have onone to speak up my heart in the world !
+Does't it ? 
+So many things I don't know , where to start? Someone would say you just do
+it,your anxiety is owing to too much thinking and too less action. Fuck you!
+You konw my pain , my situation? If you are in my situation ,I think you
+are weaker than me! I don't know me at all, what right do you to teach me to
+do things? 
+Your information is too much! You are yourself, listen to your heart, find the
+way.
