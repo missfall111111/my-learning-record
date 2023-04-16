@@ -118,3 +118,7 @@ are weaker than me! I don't know me at all, what right do you to teach me to
 do things? 
 Your information is too much! You are yourself, listen to your heart, find the
 way.
+# 2023.4.26
+I'm afraid that I would ill for my terrible mental health. I really anxious
+these days.
+Hope a better tomorrow.
