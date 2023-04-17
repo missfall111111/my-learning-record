@@ -122,3 +122,12 @@ way.
 I'm afraid that I would ill for my terrible mental health. I really anxious
 these days.
 Hope a better tomorrow.
+# 2023.4.17
+Today I suddenly understand a sentence "人生若只如初见，何事秋风悲画扇。",
+I've seen it not one time,but today when I listen a song and I suddenly understand
+it. Everyone is beautiful at the first sight and at the first meet, and when you
+gradually get familiar with them ,you may be crazy. It's truth.
+I may crush on a seen-kind girl ,but I'm afraid so perfect her is that she may
+already has a equally perfectt boyfriend! And I ,a poor ,ugly ,short person.
+But I 'm also eager to a love !  I'm spechless now ,bye. How fuck the life is!
+
