@@ -130,4 +130,14 @@ gradually get familiar with them ,you may be crazy. It's truth.
 I may crush on a seen-kind girl ,but I'm afraid so perfect her is that she may
 already has a equally perfectt boyfriend! And I ,a poor ,ugly ,short person.
 But I 'm also eager to a love !  I'm spechless now ,bye. How fuck the life is!
+# 2023.4.28
+I got some reason to release my anxiety.
+1. Never believe your eyes. Girls may only look nice at the special sight and that
+what they want you to see. They are fake, not natural. They would make up their
+face and show their legs.And if they don't make up ,I bet you must get no interest
+in they.
+2. You play your jj for curiosity and excitment ,but that is also fake!What is 
+true is your healthy body and clear brain. I know you are lonely, but don't 
+put your hope on those persons. Sooner or farer ,you may meet someone you want.
 
+Good bye. Wish everyone happy everyone.
