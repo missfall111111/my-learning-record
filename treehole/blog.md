@@ -141,3 +141,15 @@ true is your healthy body and clear brain. I know you are lonely, but don't
 put your hope on those persons. Sooner or farer ,you may meet someone you want.
 
 Good bye. Wish everyone happy everyone.
+# 2023.4.19
+Main thing is that you ought to stop not realistic inmagination,you miss something,
+and you imagine she is behind you ,so a useless class.You didn't acquint her at all,
+just observe and wait for chances. If you want spy just look at her eyes normally,
+just stare at her face.Show your attention!
+If there's not ang chance between you and someone ,forget,give up.
+When something happen,you should still focus on your main task,stop inagining .
+I wish a girlfriend to share my happiness and sadness, I wnat to speak up my secrets to her,
+make love with her ,help each other.So where are you ,my girlfried? Tqy?
+Which university you finally get? Am I a coward ? I evev don't know such an important things of you.
+Just love you deeply and secretly,why I am afraid to let others know my love? Inferiority? Poverty?
+But my love is true,your shadow take root in my heart forever.
