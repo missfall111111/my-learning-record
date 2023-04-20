@@ -153,3 +153,11 @@ make love with her ,help each other.So where are you ,my girlfried? Tqy?
 Which university you finally get? Am I a coward ? I evev don't know such an important things of you.
 Just love you deeply and secretly,why I am afraid to let others know my love? Inferiority? Poverty?
 But my love is true,your shadow take root in my heart forever.
+# 2023.4.20
+I found a problem: When time is sufficient,I would be loose and start to play ,waste time till the 
+deadline,while when you are busy,you become painful ,but you still squeeze time for others.
+Don't it strange? Why don't you do wnat you like whe you are free,and focus on study when busy.
+Let's talk another topic:girl. I become painful on this. I doubt that is there really exist a kind girl
+in my heart in this GUET? And I start to regret for my failure on college entrance exam. They are cheat you!
+Your failure don't let you meet the right person ,even is difficult to find someone to have a talk!
+I'm eager for a love with a girl I love !GOD!
