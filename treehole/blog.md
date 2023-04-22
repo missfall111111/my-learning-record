@@ -161,3 +161,13 @@ Let's talk another topic:girl. I become painful on this. I doubt that is there r
 in my heart in this GUET? And I start to regret for my failure on college entrance exam. They are cheat you!
 Your failure don't let you meet the right person ,even is difficult to find someone to have a talk!
 I'm eager for a love with a girl I love !GOD!
+# 2023.4.24 15:24
+Just a few minutes before ,when I wash my clothes ,it seemed that a boy from BeiJing called me a "穷逼".
+Why are you becoming sad ,why? Don't you always call yourself in such a way?
+"看你麻痹"
+Anyway ,a true thing is that you should learn as much as you can ,too little thing you've known.May
+knowledge make confident? I don't know ! But I'm sure money can! Money can save my weak dignity.HAHA!
+I fail my college entreance exam ,I come from a poor regoin, and my father is peasent worker,and my mother
+earns less,how could you confident and persue a girl .
+A certain thing is that what you can do now to save your embarrassed situation is just learn,using life.
+When would my life become nice ,when, I'm afraid I would be mad sooner or later,WHEN,MY GOD?
