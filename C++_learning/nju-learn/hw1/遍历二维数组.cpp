@@ -16,4 +16,23 @@ int main()
         }
         cout<<endl;
     }
+    //下标运算符
+    int row=3,column=4;
+    for(int i=0;i<row;i++)
+    {
+        for(int j=0;j<column;j++)
+        {
+            cout<<arr[i][j]<<" ";
+        }
+        cout<<endl;
+    }
+    //指针
+    for(int (*a)[4]=arr;a!=arr+3;a++)
+    {
+        for(int *b=a[0];b!=a[0]+4;b++)
+        {
+            cout<<*b<<" ";
+        }
+        cout<<endl;
+    }
 }
