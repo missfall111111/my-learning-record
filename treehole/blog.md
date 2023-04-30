@@ -171,3 +171,4 @@ I fail my college entreance exam ,I come from a poor regoin, and my father is pe
 earns less,how could you confident and persue a girl .
 A certain thing is that what you can do now to save your embarrassed situation is just learn,using life.
 When would my life become nice ,when, I'm afraid I would be mad sooner or later,WHEN,MY GOD?
+# 2023.4.27
