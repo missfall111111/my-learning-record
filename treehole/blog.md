@@ -172,3 +172,5 @@ earns less,how could you confident and persue a girl .
 A certain thing is that what you can do now to save your embarrassed situation is just learn,using life.
 When would my life become nice ,when, I'm afraid I would be mad sooner or later,WHEN,MY GOD?
 # 2023.4.27
+# 2023.5.1
+I called them "beder",for they lie on the bed all day long.
