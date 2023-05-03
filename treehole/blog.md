@@ -173,4 +173,10 @@ A certain thing is that what you can do now to save your embarrassed situation i
 When would my life become nice ,when, I'm afraid I would be mad sooner or later,WHEN,MY GOD?
 # 2023.4.27
 # 2023.5.1
-I called them "beder",for they lie on the bed all day long.
+I called them "beder",for they lie on the bed all day long
+# 2023.5.3
+Even time is not enough,I still put lot things off.
+I want to conclude something these days.
+1. I need to find a way to relax yourself,which makes you really happy! Looking
+at phone and you're not really happy.
+2. 
