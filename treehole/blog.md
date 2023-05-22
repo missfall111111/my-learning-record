@@ -179,4 +179,6 @@ Even time is not enough,I still put lot things off.
 I want to conclude something these days.
 1. I need to find a way to relax yourself,which makes you really happy! Looking
 at phone and you're not really happy.
-2. 
+2.
+# 2023.5.22 afternoon 
+Figure out a question : you learn it for a good-looking grade or yourself improvement?
